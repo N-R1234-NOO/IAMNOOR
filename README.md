@@ -1,7 +1,7 @@
 
 we are true indians
 
-we are practing the git
+we are practing the gi
 
 
 
