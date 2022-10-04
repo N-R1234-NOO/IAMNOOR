@@ -5,8 +5,6 @@ sdjalkjf
 7386666851
 jajsl;jfjasjfklasjfjla
 
-practicing git 
-
 
 
 we are true indians
